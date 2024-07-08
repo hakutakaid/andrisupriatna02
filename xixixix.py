@@ -1,0 +1,1 @@
+Semua Nya Gatau
